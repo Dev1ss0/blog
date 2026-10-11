@@ -1,4 +1,4 @@
-I feel like I an in a loop. Engaging myself in a bad habit, feel shame, feel disconnected from the "narrative of my life", numb the feelings with even more comfort substances, feel even more guilt and shame, and even less natural motivation. This process is called "self destruction". I am sure you have done this before. I know I have. But how to stop feeling like shit? How to avoid this toxic loop?
+I feel like I am in a loop. Engaging myself in a bad habit, feel shame, feel disconnected from the "narrative of my life", numb the feelings with even more comfort substances, feel even more guilt and shame, and even less natural motivation. This process is called "self destruction". I am sure you have done this before. I know I have. But how to stop feeling like shit? How to avoid this toxic loop?
 
 ## It is time for a change.
 See, I noticed something, the more "bad" stuff I do, the more shit my day is, and by "bad", I mean, procrastination, instant gratification, bad habits, scrolling, etc. I'm sure you get the point. But on the other side, the more good things I do, the better my day is. So now, how to fix this?
